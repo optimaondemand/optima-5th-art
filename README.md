@@ -1,1 +1,0 @@
-# optima-5th-art

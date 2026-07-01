@@ -1,0 +1,1 @@
+Art Intermediate 3 final drafts rebuilt using the uploaded Week 4 Lesson 1 template shell. Q4 source links use direct Commons/file pages where licensing is visible. Week 29 Firebird image was removed and replaced with Pieter Bruegel the Elder, Children’s Games (public domain).
